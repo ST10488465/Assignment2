@@ -45,6 +45,12 @@ GitHub is used to manage development and collaboration; team members or contribu
 ![image](https://github.com/user-attachments/assets/2f4e2fa0-672c-4d18-ac48-8047352cdc77)
 ![image](https://github.com/user-attachments/assets/d9359124-aa5c-43a4-a83e-5ba8a5f20cb4)
 
+# Refrences
+
+Sharepoint.com. (2025). Redirecting. [online] Available at: https://advtechonline.sharepoint.com/:w:/r/sites/TertiaryStudents/_layouts/15/Doc.aspx?sourcedoc=%7BA1FF62F0-8E1A-47BC-99BD-CA07AE24427D%7D&file=IMAD5112_MM.docx&action=default&mobileredirect=true.
+
+‌
+
 
 
 
